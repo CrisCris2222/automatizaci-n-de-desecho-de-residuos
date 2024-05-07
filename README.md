@@ -1,0 +1,1 @@
+# automatizaci-n-de-desecho-de-residuos
